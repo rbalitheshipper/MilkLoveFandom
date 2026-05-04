@@ -15,7 +15,7 @@ Also if you are an interfan like me, I suggest jump to the useful lingo section 
 7. [Year 2026 (Running)](#year-2026-running-may-2026)
 8. [Future Projects](#year-2023)
 9. [Useful Fandom Lingo](#handy-lingo-for-the-fandom)
-10. [MuvMuv The Mascot](#muvmuv-the-mascot)
+10. [Official Socials](#official-socials)
 11. [Helpful Fan Socials To Follow](#helpful-accounts)
 
 
@@ -207,20 +207,56 @@ These are basically words/abbreviatons, used within the fandom a lot. Some of th
 
 - P'Milk was born in 1996 and P'Love was born in 2000. Sometimes this is referred to as the 9600 couples (since NamtanFilm also have the same age gap).
 
-## MuvMuv the Mascot
+## Official Socials
+### Milk Pansa Vosbein
+<p align="center">
+<img src="images/milkpansa.png" alt ="Milk Pansa Vosbein">
+<br>
+Milk Pansa Vosbein
+</p>
+Our P'Milk aka P'Mew!!! To be fair you probably wouldn't have been on this page if you didn't already follow her 😂. But in case you missed out some, here's all her socials.
+
+<br>
+
+[Youtube](https://www.youtube.com/@panly7833) &ensp;|&ensp; [X](https://x.com/panlyyy) &ensp;|&ensp; [Instagram](https://www.instagram.com/panly.v) &ensp;|&ensp; [Tiktok](https://www.tiktok.com/@panly.v)
+
+### Love Pattranite Limpatiyakorn
+<p align="center">
+<img src="images/loverrukk.jpg" alt ="Love Pattranite Limpatiyakorn">
+<br>
+Love Pattranite Limpatiyakorn
+</p>
+Our P'Love/Luv aka P'Loverrukk/Luvrrukk (Ruk means love in Thai). As the first born child, her parents affectionately nicknamed her love and it definitely suits our girl! 
+
+<br>
+
+[Youtube](https://www.youtube.com/@loverrukkpattranite7774) &ensp;|&ensp; [X](https://x.com/loverrukk) &ensp;|&ensp; [Instagram](https://www.instagram.com/loverrukk) &ensp;|&ensp; [Tiktok](https://www.tiktok.com/@luvrrukk) &ensp;|&ensp; [Facebook](https://www.facebook.com/loverrukkchannel)
+
+
+### GMMTV
+<p align="center">
+<img src="images/gmmtvlogo.jfif" alt ="GMMTV Logo">
+<br>
+GMMTV Logo
+</p>
+GMMTV is a TV production and talent agent company under GMM Grammy (a Thai entertainment conglomerate). Basically in Thai entertainment industry, you will often see stars/idols are managed by certain talent agencies. MilkLove are under GMMTV contract currently. 
+
+<br>
+
+[Youtube](https://www.youtube.com/@gmmtv) &ensp;|&ensp; [X](https://x.com/GMMTV) &ensp;|&ensp; [Instagram](https://www.instagram.com/gmmtv/?hl=en) &ensp;|&ensp; [Tiktok](https://www.tiktok.com/@gmmtvofficial)
+
+### MuvMuv the Mascot
 <p align="center">
 <img src="images/muvmuv.jfif" alt ="MuvMuv Mascot">
 <br>
 MuvMuv
 </p>
 
-The character (a white samoyed dog) wears an orange cat head scarf—referencing to P'Love's nickname and branding also arries a box of pink milk, a referencing  to P'Milk.
+The character (a white samoyed dog) wears an orange cat head scarf referencing to P'Love's nickname and branding also arries a box of pink milk, a referencing  to P'Milk.
 
 **Fun Fact:** Every time Muvmuv appears for an event, MilkLove actually get a portion of the pay. It's a GMMTV rule, where mascot's parents get paid too when the mascot appears at an event. It is there so that the relation between the actors and the mascot can be nurtured more easily. Following are MuvMuv's socials:
 
-Socials: [Instagram](https://www.instagram.com/muvmuv.gmmtv/) | 
-[X](https://x.com/muvmuv_GMMTV) |
-[Tiktok](https://www.tiktok.com/@muvmuv.gmmtv)
+[Instagram](https://www.instagram.com/muvmuv.gmmtv/) &ensp;|&ensp; [X](https://x.com/muvmuv_GMMTV) &ensp;|&ensp; [Tiktok](https://www.tiktok.com/@muvmuv.gmmtv)
 
 ## Helpful Accounts
 
