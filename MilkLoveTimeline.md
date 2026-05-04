@@ -1,6 +1,6 @@
 # MilkLove Timeline
 
-Okay, firstly, I haven't been chronically online in the past four-five years as much (college life whack) so I might miss a few monumental moments but I'll try my best to summarise everything. Please feel free to correct me if I messed up any details. I am going to explain briefly the years (2020-Present) in the following section.
+Okay, firstly, I haven't been chronically online in the past four-five years as much (college life whack) so I might miss a few stuff but I'll try my best to summarise everything. Please feel free to correct me if I messed up any details. I am going to explain briefly the years (2020-Present) in the following section. Please understand that as fun as shipping is, due to personal moral principles I will not be sharing any timeline details about their personal individual relationship status updates from their fan interactions over the years. However, I will try my best to mention the most talked about topics/ memorable shippable moments in the fandom.
 
 Also if you are an interfan like me, I suggest jump to the useful lingo section first because some of the words otherwise might not make sense.
 
@@ -16,7 +16,7 @@ Also if you are an interfan like me, I suggest jump to the useful lingo section 
 8. [Future Projects](#year-2023)
 9. [Useful Fandom Lingo](#handy-lingo-for-the-fandom)
 10. [MuvMuv The Mascot](#muvmuv-the-mascot)
-11. [Helpful Fan Socials To Follow](#helpful-fan-accounts)
+11. [Helpful Fan Socials To Follow](#helpful-accounts)
 
 
 
@@ -70,7 +70,7 @@ Back then MilkLove were then termed as the "8 second couple" because of their sh
 
 ## Year 2023
 
- The shooting of 23.5 Series took place this year. Filming was finished in November 2023. Public speculation states that the company basically was waiting to see the public response for GAP. GAP's commercial success kind of reassured the company that it is worth a shot. Thankfully our girls also kept wanting to work with each other. Plus, the OG muvmuvs were very dedicated and loyal. There's a vlog from P'Love's official youtube account from around March 2023, you can watch it [here](https://youtu.be/XVD8PwlzRtc?si=WrOk9hEPhajXz2nd).
+ The shooting of 23.5 Series took place this year. Public speculation states that the company basically was waiting to see the public response for GAP. GAP's commercial success kind of reassured the company that it is worth a shot. Thankfully our girls also kept wanting to work with each other. Plus, the OG muvmuvs were very dedicated and loyal. There's a vlog from P'Love's official youtube account from around March 2023, you can watch it [here](https://youtu.be/XVD8PwlzRtc?si=WrOk9hEPhajXz2nd).
 
 <p align="center">
   <img src="images/plovevlog2023.png" alt="Snap from P'Love's Official Youtube Vlog">
@@ -79,13 +79,13 @@ Back then MilkLove were then termed as the "8 second couple" because of their sh
 </p>
 
 
- 23.5 was a big deal for GMMTV since they had never done GLs and GMMTV is a big entertainment company so once they produce it, it's going everywhere. But official statement wise, the delay happened because GeminiFourth who were cast in 23.5 as a side couple could not participate in filming anymore as they had to prepare for their own new series. So, the schedule got delayed. 
+ 23.5 was a big deal for GMMTV since they had never done GLs and GMMTV is a big entertainment company so once they produce it, it's going everywhere (like it was the first Thai GL that went to premiere on Netflix). But official statement wise, the delay happened because GeminiFourth (one of the GMMTV BL ships) who were cast in 23.5 as a side couple could not participate in filming anymore as they had to prepare for their own new series. So, the schedule got delayed. Filming was finished in November 2023. 
  
  There a few clips on the internet from them of P'Milk and P'Love being teased by other costars/friends in GMMTV during different lives/shoots (possibly because they were clearly going to be the first female Confirmed Pair of the company). 
 
 ## Year 2024
 
-[Official 23.5 Trailer](https://youtu.be/mdOlxH11WnQ?si=Z4calfL2O-ZqJ92J) was released in February. The series finally started airing in March, that too on International Women's Day (lessssgooooo). This paved the way for GLs in GMMTV. And it was successful surely but the fact that MilkLove were right up there with FreenBecky in starting the ThaiGL wave, a lot of the new fan didn't know that. [Muvmuv](#muvmuv-the-mascot) was also born this year on May 24 (a day after P'Love's birthday lol). You can watch them create Muvmuv [here](https://www.youtube.com/watch?v=qG8WquuErt8).
+[Official 23.5 Trailer](https://youtu.be/mdOlxH11WnQ?si=Z4calfL2O-ZqJ92J) was released in February. The series finally started airing in March, that too on International Women's Day (lessssgooooo). This paved the way for GLs in GMMTV, you can watch it on GMMTV's official Youtube Channel [here](https://youtube.com/playlist?list=PLszepnkojZI7DbooKGnHIy2Zz7BF4fqr-&si=IyHz7A8C6RV3WN71) (given that it isn't geoblocked for you). It is also available on Netflix so do check there. It was successful surely but the fact that MilkLove were right up there with FreenBecky in starting the ThaiGL wave, a lot of the new fan didn't get to know that unfortunately. [Muvmuv](#muvmuv-the-mascot) was also born this year on May 24 (a day after P'Love's birthday lol). You can watch them create Muvmuv [here](https://www.youtube.com/watch?v=qG8WquuErt8).
 
 <p align="center">
   <img src="images/GMMTV24outing.jfif" alt="MilkLove in GMMTV2024 Outing">
@@ -94,19 +94,19 @@ Back then MilkLove were then termed as the "8 second couple" because of their sh
 </p>
 
 
-Back then, besides FreenBecky, EngLot and AndaLookkaew were the only GL ships. Later that year, LingOrm's first show TSOU, FayeYoko's Blank, LMSY's Affair and NamtanFilm's Pluto were released. 
+Back then, besides FreenBecky, EngLot and AndaLookkaew were the only GL ships who have had their own show. Later that year, LingOrm's first show TSOU, FayeYoko's Blank, LMSY's Affair and NamtanFilm's Pluto were released. 
 
-MilkLove weren't big on fan service and they have always maintained that very religiously. There are a lot of clips and memes within the fandom from this time about P'Love going "Ya Jin" (meaning Don't ship/No delulu) and she even bought rubber bands to a fan event to keep the delulu fans in check 😂. 
+MilkLove weren't big on fan service and they have always maintained that very religiously. There are a lot of clips and memes within the fandom from this time about P'Love going "Ya Jin" (meaning don't ship) and she even bought rubber bands to a fan event to keep the delulu fans in check 😂. 
 
 During this era, some fans complained about the lack of chemistry between MilkLove (they were literally portraying high school kids where on-screen intimacy had to be limited and MilkLove aren't big on fanservice🤦🏻‍♂️). 
 
-In late 2024, MilkLove (well it didn't stay a secret because one of them accidentally revealed they were together through their posts) went on a 9 day South Korea tour. This is often referred to within the fandom as the SK tour. P'Milk eventually shared a [vlog on her Tiktok](https://www.youtube.com/watch?v=KcXPGYPA9rM). It was initially supposed to be a friends tour (from the 23.5 cast) with more friends going with them but their schedules didn't line up. Some even claimed that apparently this trip was sponsored by the blue company to do damage control 😂(which have you seen the budget they provide for promotions???? ye no).
+In late 2024, MilkLove (well it didn't stay a secret because one of them accidentally revealed they were together through their posts) went on a 9 day South Korea tour. This is often referred to within the fandom as the SK tour. P'Milk eventually shared a vlog on her [Tiktok](https://vt.tiktok.com/ZS9QMHc2R/), you can watch that full vido with English translation [here](https://www.youtube.com/watch?v=KcXPGYPA9rM) on Youtube. It was initially supposed to be a friends tour (from the 23.5 cast) with more friends going with them but their schedules didn't line up. Some even claimed that apparently this trip was sponsored by the blue company to do damage control 😂(which have you seen the budget they provide for promotions???? ye no).
 
 In GMMTV 2025 lineup, they announced [WhaleStoreXoXo](https://www.youtube.com/live/057lFJnjqi0?si=Af5s_oP2HZTUXJc-&t=4512) and [Girl Rules](https://www.youtube.com/live/057lFJnjqi0?si=8FewCd0HhABJ0kza&t=9284). You will also find some cute moments from Starlympics24 (an GMMTV annual star sports event) on different social media (mainly the one where [P'Milk lifted P'Love up in a hug](https://www.youtube.com/watch?v=PJX4_JxqBe8) after her race). There are a lot more moments, you can watch compilations of them on youtube.
 
 ## Year 2025
 
-WhaleStoreXoXo was shot in the first half and released about in the middle of the year. It created new records for the company, being a massive success. P'Milk had appeared for Paris Fashion Week at YSL's Fall/Winter Show in March and our number one Mimiv was so proud of her ([as you can see](https://x.com/sapphoria_th/status/1900403112432865566)).
+WhaleStoreXoXo was shot in the first half and released about in the middle of the year. You can watch it on [here](https://youtube.com/playlist?list=PLszepnkojZI4qpSumzOHRdNa79JRiC-cE&si=13aKot3iDQVTQXPr) (again given that's it not geo blocked for you). It created new records for the company, being a massive success. P'Milk had appeared for Paris Fashion Week at YSL's Fall/Winter Show in March and our number one Mimiv was so proud of her ([as you can see](https://x.com/sapphoria_th/status/1900403112432865566)).
 
 Shooting for Girl Rules started after WSX was done airing. While new Muvs might not be able to tell, during this time a significant shift was seen in MilkLove chemistry which is kind of widely accepted within the fandom. Some refer to the 2024 SK trip as the "initial" point of the shift and some refer to [this interview ](https://youtu.be/LQ4EfMzXgq4?si=iem94X1uXJMPUxBM)as the "initial" point. 
 
@@ -134,7 +134,7 @@ Firstly, P'Milk became YSL BA in like January (go girllll!). The Girl Rules shoo
 
  During valentine's day this year, P'Milk was away for a fashion event but had posted "L O V E" spelled out through video call between her and P'Love on her story. ![MLVD26](images/VD2026.jpeg)
 
-You will find countless edits from their interviews reactions and fan interactions from GR promotion and airing era online.
+You will find countless edits from their interviews reactions and fan interactions from GR promotion and airing era online. If GR is available on youtube for you, you can watch it [here](https://youtube.com/playlist?list=PLo8dqgdBbe4V4nlNTvR4YV49SYxpDjtiP&si=xTi9qj9kn66t1jM-). It is also available on iQIYI for some of you. 
 
 ## Future Projects
 
@@ -150,6 +150,8 @@ Afterwards shooting for Ditto Series will begin. So, Ditto will likely be releas
 
 ## Handy Lingo for the fandom
 
+These are basically words/abbreviatons, used within the fandom a lot. Some of them literally are just basic thai lessons at this point 😂.
+
 - 💚-> P'Milk
 
 - 💖-> P'Love (also sometimes referred to with just the 🩷 pink heart)
@@ -160,7 +162,7 @@ Afterwards shooting for Ditto Series will begin. So, Ditto will likely be releas
 
 - K' -> Khun (used to address people formally, like Mr/Ms but it's also gender neutral)
 
-- Muvmuv -> M from Milk, uv from Luv (ML fans, also the Mascot considered as MilkLove's daughter and is represented by an orange heart 🩷) [See Picture](#muvmuv-mascot)
+- Muvmuv -> M from Milk, uv from Luv (ML fans, also the Mascot considered as MilkLove's daughter and is represented by an orange heart 🧡) [See Picture](#muvmuv-the-mascot)
 
 - Mini heart -> P'Love fans
 
@@ -175,7 +177,7 @@ Afterwards shooting for Ditto Series will begin. So, Ditto will likely be releas
 
 - Samoyed -> P'Milk (Again I don't know who came up with this but I think it is because of the fact that P'Milk really does give off samoyed puppy vibes at times)
 
-- Uke -> Bottom & Seme -> Top (borrowed from Japanese culture I believe)
+- Uke -> Bottom & Seme -> Top (borrowed from Japanese culture I believe). P'Love is a muscle uke (according to a seme/uke [online quiz](https://ukeorsemequiz.com/en) result she shared sometime in March/April 2026). We don't know what type of Seme P'Milk is but we know she is one.
 
 - MCU -> MilkLove Cinematic Universe (basically referring to their work as an onscreen pair in different series)
 
@@ -185,6 +187,14 @@ Afterwards shooting for Ditto Series will begin. So, Ditto will likely be releas
 - Suay -> Beautiful 
 - Lolen -> Joking
 - MLPFK -> MilkLove Pen Faen Kan (trans. Milk/Love are Dating), it's a shipper made thing. People have fun with the hashtag, don't take it seriously. 
+- GR -> Girl Rules Series
+- WSX -> Whale Store XoXo Series
+- Ditto -> Ditto Series
+- BBS -> Bad Buddy Series
+- alai / arai -> what
+- kham mai -> why
+- ya jin -> Don't ship (Don't be delulu 😂). For the longest time P'Milk and specially P'Love made sure to remind us to not ship too hard, since sometimes fans get way to carried away in shipping and end up feeling hurt when their ship doesn't sail. Basically they didn't want us to ship too hard and hurt (our green flag girlies).
+- yak jin -> Want to ship. P'Love's famous dialogue in fan events😂. Instead of idol giving fan service, it's P'Love on the look out for couples in her event for fan service from the fans 😂. She even has a habit of matchmaking muvmuvs at fan evens/interactions.
 
 
 
