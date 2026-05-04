@@ -273,5 +273,5 @@ Now, before I start. There are a lot moreeeeeee and I kinda am not as chronicall
 
 [Official P'Milk Fan Club](https://x.com/milkfamily_): You will get all your P'Milk event updates here. But obviously they are one of the biggest muvmuvs too so they end up sharing a lot of MilkLove stuff too XD.
 
-[Official P'Love Fan Club](https://x.com/LoveOfficalTH): You will get all your P'Love event updates here. Similarly to P'Milk's fan club, they are also one of the biggest muvmuvs out there. 
+[Official P'Love Fan Club](https://x.com/LoveOfficialTH) / [Backup](https://x.com/LoveOfficialTH2): You will get all your P'Love event updates here. Similarly to P'Milk's fan club, they are also one of the biggest muvmuvs out there. 
 
