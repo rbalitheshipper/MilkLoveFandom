@@ -214,7 +214,7 @@ These are basically words/abbreviatons, used within the fandom a lot. Some of th
 <br>
 Milk Pansa Vosbein
 </p>
-Our P'Milk aka P'Mew!!! To be fair you probably wouldn't have been on this page if you didn't already follow her 😂. But in case you missed out some, here's all her socials.
+Our P'Milk aka P'Mew!!! To be fair you probably wouldn't have been on this page if you didn't already follow her 😂. But in case you missed out some, here's all her socials for you.
 
 <br>
 
