@@ -195,6 +195,8 @@ These are basically words/abbreviatons, used within the fandom a lot. Some of th
 - kham mai -> why
 - ya jin -> Don't ship (Don't be delulu 😂). For the longest time P'Milk and specially P'Love made sure to remind us to not ship too hard, since sometimes fans get way to carried away in shipping and end up feeling hurt when their ship doesn't sail. Basically they didn't want us to ship too hard and hurt (our green flag girlies).
 - yak jin -> Want to ship. P'Love's famous dialogue in fan events😂. Instead of idol giving fan service, it's P'Love on the look out for couples in her event for fan service from the fans 😂. She even has a habit of matchmaking muvmuvs at fan evens/interactions.
+- tooth warm -> P'Milk (because of Shasha from Girl Rules in ep3)
+- baby sting ray -> P'Milk (because P'Love thought she looks like one in [this](https://x.com/i/status/2054446698374807876)).
 
 
 
