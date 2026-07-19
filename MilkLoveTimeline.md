@@ -12,8 +12,8 @@ Also if you are an interfan like me, I suggest jump to the useful lingo section 
 4. [Year 2023](#year-2023)
 5. [Year 2024](#year-2024)
 6. [Year 2025](#year-2025)
-7. [Year 2026 (Running)](#year-2026-running-may-2026)
-8. [Future Projects](#year-2023)
+7. [Year 2026 (Running)](#year-2026-running)
+8. [Future Projects](#future-projects)
 9. [Useful Fandom Lingo](#handy-lingo-for-the-fandom)
 10. [Official Socials](#official-socials)
 11. [Helpful Fan Socials To Follow](#helpful-accounts)
@@ -136,15 +136,29 @@ Firstly, P'Milk became YSL BA in like January (go girllll!). The Girl Rules shoo
 
 You will find countless edits from their interviews reactions and fan interactions from GR promotion and airing era online. If GR is available on youtube for you, you can watch it [here](https://youtube.com/playlist?list=PLo8dqgdBbe4V4nlNTvR4YV49SYxpDjtiP&si=xTi9qj9kn66t1jM-). It is also available on iQIYI for some of you. 
 
-## Future Projects
-
-Girl Rules will finish airing in the first week of June. Then [Blush Blossom Fan Fest 2026](https://www.youtube.com/watch?v=XrObJGT_1Co&list=RDXrObJGT_1Co&start_radio=1) will also take place in June. 
+Girl Rules finished airing in the first week of June. Then [Blush Blossom Fan Fest 2026](https://www.youtube.com/watch?v=XrObJGT_1Co&list=RDXrObJGT_1Co&start_radio=1) took place in the middle of June, where MilkLove performced on two couple songs : [Next Love](https://www.youtube.com/watch?v=SPrBDyFnsDM) and [ไว้ใจได้กา](https://www.youtube.com/watch?v=g20V6m391TY). While the Next Love was way too steamy for muv's fragile hearts, the fandom fondly called ไว้ใจได้กา their wedding performance. 
 
 <p align="center">
   <img src="images/bbff26.jfif" alt="BBFanFest 2026 MilkLove Poster">
   <br>
   MilkLove BlushBlossom Fan Fest in 2026
 </p>
+
+Currently, Snap25 team is working on finding the locations for the series, outfits trials have been done. We have our Dear and Rafah:
+
+<p align="center">
+  <img src="images/Dear.jfif" alt="Milk Pansa as Dear for Ditto Fittings">
+  <br>
+  Milk Pansa Vosbein as Dear (from fittings pictures shared by <a href="https://x.com/DittoSeries">Official Ditto X account</a>)
+</p>
+
+<p align="center">
+  <img src="images/Rafah.jfif" alt="Love Pattranite Limpatiyakorn as Rafah for Ditto Fittings">
+  <br>
+  Love Pattranite Limpatiyakorn as Rafah (from fittings pictures shared by <a href="https://x.com/DittoSeries">Official Ditto X account</a>)
+</p>
+
+## Future Projects
 
 Afterwards shooting for Ditto Series will begin. So, Ditto will likely be released in early-ish 2027 slot. 
 
@@ -268,7 +282,7 @@ Now, before I start. There are a lot moreeeeeee and I kinda am not as chronicall
 
 [P'Sapphoria Account](https://x.com/sapphoria_th): First and foremost we have P'Sapphoria! She does an amazing job translating MilkLove moments and content. So, specially for interfans, she's a lifeline. Also follow, if you want to watch P'Love ship her and her girlfriend 😂. 
 
-[P'Baymax](https://x.com/bodyguardchuu): Someday I am going to earn a lot of money and pay back Phi for all the money she spent for the fandom going to events 😂. Thanks phi for sharing all the cutesy interactions!
+[P'Baymax](https://x.com/bodyguardchuu): Someday I am going to earn a lot of money and pay back Phi for all the money they spent for the fandom going to events 😂. Thanks phi for sharing all the cutesy interactions! _<span title="Extremely sorry for my previous misgendering of the person, I have since been informed and have updated accordingly"> Edit Note</span>_
 
 
 [MilkLove Offical Fan Account](https://x.com/MilkLoveTH): You will get all your MilkLove event updates here. The admins do an amazing job of keeping up with their schedules so we don't have to, thank youuu!
