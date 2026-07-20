@@ -160,7 +160,14 @@ Currently, Snap25 team is working on finding the locations for the series, outfi
 
 ## Future Projects
 
-Afterwards shooting for Ditto Series will begin. So, Ditto will likely be released in early-ish 2027 slot. 
+We finally have a FanCon!!!! GMMTV has announced a MilkLove FanCon for November (well they initially said October and then updated that in middle of July).
+
+<p align="center">
+  <img src="images/gmmtvsched.jpg" alt="MilkLove Upcoming FanCon Date Updated">
+  <br>
+ MilkLove Upcoming FanCon Date Updated
+</p>
+
 
 ## Handy Lingo for the fandom
 
