@@ -289,7 +289,7 @@ Now, before I start. There are a lot moreeeeeee and I kinda am not as chronicall
 
 [P'Sapphoria Account](https://x.com/sapphoria_th): First and foremost we have P'Sapphoria! She does an amazing job translating MilkLove moments and content. So, specially for interfans, she's a lifeline. Also follow, if you want to watch P'Love ship her and her girlfriend 😂. 
 
-[P'Baymax](https://x.com/bodyguardchuu): Someday I am going to earn a lot of money and pay back Phi for all the money they spent for the fandom going to events 😂. Thanks phi for sharing all the cutesy interactions! _<span title="Extremely sorry for my previous misgendering of the person, I have since been informed and have updated accordingly"> Edit Note</span>_
+[P'Baymax](https://x.com/bodyguardchuu): Someday I am going to earn a lot of money and pay back Phi for all the money they spent for the fandom going to events 😂. Thanks phi for sharing all the cutesy interactions! *__<span title="Extremely sorry for my previous misgendering of the person, I have since been informed and have updated accordingly"> Hover For Edit Note</span>__*
 
 
 [MilkLove Offical Fan Account](https://x.com/MilkLoveTH): You will get all your MilkLove event updates here. The admins do an amazing job of keeping up with their schedules so we don't have to, thank youuu!
