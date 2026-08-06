@@ -54,7 +54,7 @@ Bad Buddy Promotions
 
 Final episodes of Bad Buddy were released in early 2022. So, MilkLove was trending on socials already. Plus, our queen P'Love kept pushing for MilkLove 💖🤲. You can watch their scenes from the Bad Buddy episodes on this [playlist](https://youtube.com/playlist?list=PLtDkaHFD4_FE5l-y2jOWDrJVt5Zt4zWat&si=V4whnIRZMz5wtm3V). 
 
-They appeared in [Magic Of Zero](https://youtu.be/Cw8bKydjDzQ?si=s-aMwJTrI8TaGXOa) (Episodic Main Role) reprising their roles as InkPa. This came out in August 2022. They also briefly appeared in [Vice Versa](https://mydramalist.com/715907-vice-versa) in a guest role, with like 11 seconds of shared space 😂. There's a vloog from P'Milk's youtube channel (girl doesn't post there anymore), you can watch it [here](https://youtu.be/T3oqX0mj7co?si=tJ69Znvm7MeyKT17).
+They appeared in [Magic Of Zero](https://youtu.be/Cw8bKydjDzQ?si=s-aMwJTrI8TaGXOa) (Episodic Main Role) reprising their roles as InkPa. This came out in August 2022. They also briefly appeared in [Vice Versa](https://mydramalist.com/715907-vice-versa) in a guest role, with like 11 seconds of shared space 😂. There's a vlog from P'Milk's youtube channel (girl doesn't post there anymore), you can watch it [here](https://youtu.be/T3oqX0mj7co?si=tJ69Znvm7MeyKT17).
 
 <p align="center">
   <img src="images/ml2022panlyvlog.png" alt="Snap from P'Milk's Official Youtube Vlog">
@@ -66,7 +66,7 @@ Finally [23.5 series was announced in GMMTV's 2023 line up](https://www.youtube.
 
 MilkLove and FreenBecky both caught public attention from their appearance as side couples in a BL around the same time, actually MilkLove appeared onscreen first. Yet 23.5 was released in March 2024 despite being shown on 2023 lineup. 
 
-Back then MilkLove were then termed as the "8 second couple" because of their short scenes together. Where GMMTV was unfortunately lagging, IdolFactory seized the opportunity fast (it was probably easier for them too since they were a newer company but GMMTV as a bigger company had to weigh in a lot of factors).
+Back then MilkLove were then termed as the "8 second couple" because of their short scenes together. Where GMMTV was unfortunately lagging, IdolFactory seized the opportunity fast (it was probably easier for them too since they were a newer company but GMMTV as a bigger company had to weigh in a lot of factors plus the fact that always announced series in their year end annual event probably also didn't help).
 
 ## Year 2023
 
@@ -81,7 +81,7 @@ Back then MilkLove were then termed as the "8 second couple" because of their sh
 
  23.5 was a big deal for GMMTV since they had never done GLs and GMMTV is a big entertainment company so once they produce it, it's going everywhere (like it was the first Thai GL that went to premiere on Netflix). But official statement wise, the delay happened because GeminiFourth (one of the GMMTV BL ships) who were cast in 23.5 as a side couple could not participate in filming anymore as they had to prepare for their own new series. So, the schedule got delayed. Filming was finished in November 2023. 
  
- There a few clips on the internet from them of P'Milk and P'Love being teased by other costars/friends in GMMTV during different lives/shoots (possibly because they were clearly going to be the first female Confirmed Pair of the company). 
+ There a few clips on the internet from then, P'Milk and P'Love being teased by other costars/friends in GMMTV during different lives/shoots (possibly because they were the first female Confirmed Pair of the company). 
 
 ## Year 2024
 
@@ -112,7 +112,7 @@ Shooting for Girl Rules started after WSX was done airing. While new Muvs might 
 
 Basically after the presumed shift, they seemed to be more comfortable with each other (which to be fair they have been on-screen partners for years by that point so kinda expected) and P'Love had stopped calling out shippers 😂🫰. Also I personally think [this praewmag interview ](https://youtu.be/yuz_r8hnUhw?si=frZvXVNe0qvnMjuA) helped fans better understand MilkLove around this time. 
 
-P'Milk had surprised P'Love with a branded T shirt for her bday (she had to make up excuses to go shopping and ended up gifting early because she was worried P'Love might get upset about her weird sudden detachment). P'Love had gifted P'Milk a YSL sunglass for her birthday.
+P'Milk had surprised P'Love with a branded T shirt for her bday (she had to make up excuses to go shopping and ended up gifting early because she was worried P'Love might get upset about her weird sudden detachment). They were overseas, P'Love had invited P'Milk to go to some market or something but she had refused (P'Milk was trying to sneak away find her gift). The fandom often jokes about how P'Love probably walked those 12km (she did share she walked that number) because she was sulking, like she even joked [here](https://x.com/sapphoria_th/status/1942550754264314126?s=20) that she chose the 17mins song because of this. P'Love had gifted P'Milk a YSL sunglass for her [29th birthday](https://x.com/sapphoria_th/status/1954086056988750180?s=20), mind you this is way before P'Milk was YSL BA.
 
  This year was also the first [BlushBlossom FanFest](https://www.youtube.com/watch?v=hvDOZG1V1Fg) starring MilkLove, NamtanFilm, EmiBonnie, ViewMim and JuneMewnich. You will find a ton of fancams on Youtube for BlushBossom. 
 
@@ -158,6 +158,11 @@ Currently, Snap25 team is working on finding the locations for the series, outfi
   Love Pattranite Limpatiyakorn as Rafah (from fittings pictures shared by <a href="https://x.com/DittoSeries">Official Ditto X account</a>)
 </p>
 
+P'Milk surprised P'Love with a YSL Tshirt and a custom made cake from one of P'Love's favorite bakeries on 20th May (three days before her birthday) during BBFF26 practise. Some fans were quite giddy about how it aligned with unofficial Internet Valentine's Day (in Mandarin, the pronunciation for 520 sounds like Wo Ai Ni which translates to I Love You). Multiple people posted pictures (all the girls were at practise), here's probably the most popular [video](https://www.tiktok.com/@miwloooveee/video/7642132446057614610).
+
+P'Love literally carried a cake to Singapore from their favorite bakery in Bangkok, they were on their way to Singapore Fan Meet for Girl Rules on P'MIlk's birthday. She thought a lot about what to give P'Milk since branded options weren't it (she's YSL BA and very attached to YSL and buying YSL stuff for the BA doesn't really make sense), so she got P'Milk the plushies from Toy Story (the ones she kept liking reels of). Like it was so sweet and heartwarming, you can see P'Milk literally bawling her eyes out [here](https://x.com/sapphoria_th/status/2083223965062111579?s=20).
+
+
 ## Future Projects
 
 We finally have a FanCon!!!! GMMTV has announced a MilkLove FanCon for November (well they initially said October and then updated that in middle of July).
@@ -167,6 +172,8 @@ We finally have a FanCon!!!! GMMTV has announced a MilkLove FanCon for November 
   <br>
  MilkLove Upcoming FanCon Date Updated
 </p>
+
+Also Ditto is being filmed currently and the series account is pretty active so that's nice. 
 
 
 ## Handy Lingo for the fandom
