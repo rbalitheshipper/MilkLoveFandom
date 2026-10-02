@@ -64,7 +64,7 @@ They appeared in [Magic Of Zero](https://youtu.be/Cw8bKydjDzQ?si=s-aMwJTrI8TaGXO
 
 Finally [23.5 series was announced in GMMTV's 2023 line up](https://www.youtube.com/live/1Mo_qFTz-qY?si=eDFT0arRiSVz9W6z&t=3587) in November 2022. This is the initial pilot for 23.5, the concept was kind of polished and improved later on. But GMMTV kind of messed up the timing due some last minute cast changes in middle of shooting (in like middle of 2023).
 
-MilkLove and FreenBecky both caught public attention from their appearance as side couples in a BL around the same time, actually MilkLove appeared onscreen first. Yet 23.5 was released in March 2024 despite being shown on 2023 lineup. 
+MilkLove and FreenBecky both caught public attention from their appearance as side couples in a BL around the same time, actually MilkLove appeared onscreen first (though FB were announced as the lead pair in GAP before their first onscreen appearence). 23.5 was released in March 2024 despite being shown on 2023 lineup. 
 
 Back then MilkLove were then termed as the "8 second couple" because of their short scenes together. Where GMMTV was unfortunately lagging, IdolFactory seized the opportunity fast (it was probably easier for them too since they were a newer company but GMMTV as a bigger company had to weigh in a lot of factors plus the fact that always announced series in their year end annual event probably also didn't help).
 
@@ -162,6 +162,22 @@ P'Milk surprised P'Love with a YSL Tshirt and a custom made cake from one of P'L
 
 P'Love literally carried a cake to Singapore from their favorite bakery in Bangkok, they were on their way to Singapore Fan Meet for Girl Rules on P'MIlk's birthday. She thought a lot about what to give P'Milk since branded options weren't it (she's YSL BA and very attached to YSL and buying YSL stuff for the BA doesn't really make sense), so she got P'Milk the plushies from Toy Story (the ones she kept liking reels of). Like it was so sweet and heartwarming, you can see P'Milk literally bawling her eyes out [here](https://x.com/sapphoria_th/status/2083223965062111579?s=20).
 
+In September 2026, our girls basically rocked the fashion weeks. P'Love went to New York Fashion Week Spring/Summer 2027 (NYFW2026) with Coach and was ranked No.1 globally in terms of EMV and No.5 globally in terms of MIV (please check [here](#handy-lingo-for-the-fandom) for full forms). God, I love P'Love because who would believe this was her first ever fashion week appearance and she's already setting global ranks. 
+
+<p align="center">
+  <img src="images/LoverrukkNFWSS27.jfif" alt="Loverrukk Debuting For Coach at NFWSS27">
+  <br>
+ Loverrukk Debuting For Coach at NFWSS27
+</p>
+
+P'Milk attended Paris Fashion Week 2026 (PFW26) as the YSL BA and obviously stunned everyone being the absolute diva she is! 
+
+<p align="center">
+  <img src="images/MilkPansaPFW26.jfif" alt="Milk Pansa as BA YSL at PFW26">
+  <br>
+ Milk Pansa as BA YSL at PFW26
+</p>
+
 
 ## Future Projects
 
@@ -210,6 +226,8 @@ These are basically words/abbreviatons, used within the fandom a lot. Some of th
 - MCU -> MilkLove Cinematic Universe (basically referring to their work as an onscreen pair in different series)
 
 - GreenPink -> Referring to the muvmuv fandom (MilkLove's heart colors)
+- PFW -> Paris Fashion Week
+- NYFW / NFW -> New York Fashion Week
 
 - Lawr (r is kinda silent) -> Handsome
 - Suay -> Beautiful 
