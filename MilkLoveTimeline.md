@@ -17,6 +17,7 @@ Also if you are an interfan like me, I suggest jump to the useful lingo section 
 9. [Useful Fandom Lingo](#handy-lingo-for-the-fandom)
 10. [Official Socials](#official-socials)
 11. [Helpful Fan Socials To Follow](#helpful-accounts)
+12. [Fun Fan Projects Online](#fun-fan-projects-online)
 
 
 
@@ -316,9 +317,58 @@ Now, before I start. There are a lot moreeeeeee and I kinda am not as chronicall
 
 [P'Baymax](https://x.com/bodyguardchuu): Someday I am going to earn a lot of money and pay back Phi for all the money they spent for the fandom going to events 😂. Thanks phi for sharing all the cutesy interactions!
 
-[MilkLove Offical Fan Account](https://x.com/MilkLoveTH): You will get all your MilkLove event updates here. The admins do an amazing job of keeping up with their schedules so we don't have to, thank youuu!
+[MilkLove Offical Fan Account](https://x.com/MilkLoveTH): You will get all your MilkLove event updates here. The admins do an amazing job of keeping up with their schedules so we don't have to, thank youuu! There is also a website where you can follow [MilkLove Schedule](https://www.milklovethailand.com/schedule).
 
 [Official P'Milk Fan Club](https://x.com/milkfamily_): You will get all your P'Milk event updates here. But obviously they are one of the biggest muvmuvs too so they end up sharing a lot of MilkLove stuff too XD.
 
 [Official P'Love Fan Club](https://x.com/LoveOfficialTH) / [Backup](https://x.com/LoveOfficialTH2): You will get all your P'Love event updates here. Similarly to P'Milk's fan club, they are also one of the biggest muvmuvs out there. 
 
+## Fun Fan Projects Online
+### MuvMuv ID Card
+You can get your own Muvmuv ID card online [here](https://www.milklovethailand.com/announcement/20240822-muvmuv-id-card).
+
+<p align="center">
+<img src="images/muvmuv-id-card.png" alt ="MuvMuv ID Card">
+<br>
+MuvMuv ID Card
+</p>
+
+### Which Character Are You Quizes
+Fans are dedicated enough to make quizes you can take for fun to see which character you end up with, here are the ones I know of:
+
+#### [Which 23.5 Character Are You?](https://uquiz.com/quiz/B0XKOj/which-23-5-character-are-you) 
+This one is hosted on uquiz under personality quiz types. There are 13 questions only so go give it a try! To all my fellow Ongsas, it's okay buddy, we got this. I love you all XD.
+
+<p align="center">
+<img src="images/23.5quiz.png" alt ="23.5 Which Character Are You Quiz">
+<br>
+23.5 Which Character Are You Quiz
+</p>
+
+#### [Which Girl Rules Character Are You?](https://uquiz.com/quiz/DHzuqr/which-girl-rules-2026-character-are-you)
+This one is also hosted on uquiz. There are 15 questions here (Girl Rules had a lot of characters!!!). From what I saw when the quiz was trending, if you get Gorya you are goated!
+
+<p align="center">
+<img src="images/girlrulesquiz.png" alt ="Girl Rules Which Character Are You Quiz">
+<br>
+Girl Rules Which Character Are You Quiz
+</p>
+
+#### [Which MilkLove Character Are You?](https://rbalitheshipper.github.io/Which-MilkLove-Character-Are-You/)
+Disclaimer, as the creator of this quiz, I claim no accuracy on the results 😂! I hosted it on github (free hosting lol because still a broke grad student). It includes all MilkLove characters (shows where MilkLove ship were a part starting all the way from my OG InkPa) till date and since I can claim responsibility for the maintenance, I will add new characters to it as our MCU keeps growing.
+
+<p align="center">
+<img src="images/milklovequiz.png" alt ="Which MilkLove Character Are You Quiz">
+<br>
+Which MilkLove Character Are You Quiz
+</p>
+
+### MilkLove Cinematic Universe Games
+
+#### [Hangman (Save MuvMuv)](https://rbalitheshipper.github.io/MilkLove-Cinematic-Universe-Hangman/)
+
+<p align="center">
+<img src="images/savemuvmuv.png" alt ="MilkLove Cinematic Universe Hangman">
+<br>
+MilkLove Cinematic Universe Hangman
+</p>
